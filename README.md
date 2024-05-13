@@ -21,7 +21,8 @@ Tracklist<br>
 그것이 무엇인지 알지 못한 채로 행하는 절단 행위는 내가 본 풍경, 그리고 내가 겪은 시간을 바로 이곳에 붙들어 매려는 불가능한 욕망과 결합합니다. 그리고 그 자리에서 하나의 기묘한 음향적 풍경이 발생합니다. 이 풍경이 드러내는 것은, 한 그루의 나무가 자신이 겪는 일을 안다는 것의 의미가 우리가 우리 스스로에게 일어나는 일을 아는 것과 같지 않다는 사실입니다. 확실한 것은, 채소 마누라와 재미 좀 본 대가로 발목부터 땅에 심어진 농부의 중단된 숨결*이 보여주듯, 나무라는 사건을 가능하게 하는 무자비하고 비인간적인 생식력이 결코 길들이거나 채집할 수 있는 종류의 것이 아니라는 사실입니다.
 
 "Album title"은 예의 나무-사건이 중단된 곳에서 완전히 다른 태생의 수목을 접붙이는 음악적 수지접합술을 보여줍니다. “Yoga Mat”가 짓눌리는 평면의 입장에서 짓누르는 중력을 상승하는 활공음으로 역전시키는 과정의 서스펜스를 고조한다면, “Agate”를 통해 청취자는 고조된 긴장 상태 속에서 마침내 무언가 이해할 수 있을 것만 같은 리듬으로 접어듭니다. 그런데 우리가 원하는 방식으로 재배가 가능한, 환금성 작물인 줄로만 알았던 그 리듬의 대가로 우리가 방금 치른 것은 무엇인가요? “Rub Hard”가 학대적 성향으로 변질되어 가는 정현파의 주기성을 변조함으로써 손끝의 촉각성을 비물질적으로 탈구시킨다면, 내 말에 동조하는 줄 알았더니 자기들끼리 메기고 받기를 시작하는 “Need to sleep”은 우리를 감미로운 소외의 상태로 빠져들게 합니다. 이 모든 것은 VG가 행한 절단에 의해 흘러내리는 불가해한 수액이자, 그가 행한 봉합의 결과로 단단하게 옹그러진 새로운 마디입니다.
-
+<br>
+<br>
 ＊팻 머피(2023). "채소 마누라" in. 『사랑에 빠진 레이철』. 허블. 유소영 옮김 <br>
 최보련 씀
 
@@ -36,6 +37,7 @@ At some future point in time, when all of this will be looked back upon as the i
 The act of cutting, without knowing what it is, combines with the impossible desire to hold on to the landscape I have seen, and the time I have lived through, in this very place, and a strange sonic landscape arises in its place. What this landscape reveals is that what it means for a tree to know what it is going through is not the same as what it means for us to know what is happening to us. What is certain is that, as the interrupted breath* of the farmer who was planted in the ground from the ankles up in exchange for a little fun with his vegetable wife demonstrates, the ruthless, inhuman fertility that makes the event of trees possible is not the kind of thing that can be tamed or harvested.
 
 “Inscrutable Sap” shows the musical resinous grafting of a tree of a completely different origin where the tree-of-courtesy-event was interrupted. If “Yoga Mat” heightens the suspense of the process of reversing the crushing gravity of a flat stance into an ascending glide, “Agate” allows the listener to enter a rhythm that finally seems to make sense out of the heightened tension. But what did we just pay for that rhythm, which we only knew to be a monetary crop that could be cultivated any way we wanted? If “Rub Hard” immaterially dislocates the tactility of our fingertips by modulating the periodicity of a sinusoidal wave that's degenerating into abusive tendencies, then “Need to sleep,” which begins to take on a life of its own when we think we're in agreement, lulls us into a state of sweet alienation.
+<br>
 <br>
 Written by Choi Boryeon
 
