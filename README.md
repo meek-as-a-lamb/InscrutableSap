@@ -9,7 +9,9 @@ Tracklist<br>
 `4. Airholes`<br>
 `5. Variable Gravity Scale`<br>
 
-<a href="https://vegetablewife.bandcamp.com/album/inscrutable-sap" target="blank"> Bandcamp Link ⍾〠[Inscrutable Sap]〠☡
+<a href="https://vegetablewife.bandcamp.com/album/inscrutable-sap" target="blank"> ➹Bandcamp Link➷ ⍾〠[Inscrutable Sap]〠☡<br>
+<a href="https://youtu.be/adKLvfdZ7BE" target="blank"> ➹Youtube Link➷ "Rub Hard" Official Music Video<br>
+
 
 
 
