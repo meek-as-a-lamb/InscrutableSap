@@ -59,4 +59,4 @@ Produced by Vegetable Wife<br>
 Mix and arranged by Vegetable Wife<br> 
 Mastered by Kang SeungHee @Sonic Korea<br>
 Album Artwork and Video by JaeHyung Park<br> 
-Adviced by KIRARA
+Advised by KIRARA
